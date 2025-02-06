@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **vaibhavdaware1205@gmail.com**
 
-- 📄 Know about my experiences [https://resume-builder-test-new.masaischool.com/resume/public?resumeId=672d97937ca4c4119e82c2a2](https://resume-builder-test-new.masaischool.com/resume/public?resumeId=672d97937ca4c4119e82c2a2)
+- 📄 Know about my experiences [[https://resume-builder-test-new.masaischool.com/resume/public?resumeId=672d97937ca4c4119e82c2a2](https://resume-builder-test-new.masaischool.com/resume/public?resumeId=672d97937ca4c4119e82c2a2)](https://www.instagram.com/__mr_vd/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
